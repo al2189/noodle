@@ -2,7 +2,7 @@
 ![](/DB311445-E081-4B56-AA50-49B2F3100EF4.jpeg)  
 {: style="text-align: center;"}
 
-![](/CE222BF3-3845-4DB7-A869-D240708DCF03.jpeg) | ![](/5161BDCE-E862-4A83-A1DF-C509484D2AFB.jpeg)  
+![](/20140119_161817_Original.gif) | ![](/5161BDCE-E862-4A83-A1DF-C509484D2AFB.jpeg)  
 -- | --  
   |  
 
