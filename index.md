@@ -2,8 +2,8 @@
 ![](/DB311445-E081-4B56-AA50-49B2F3100EF4.jpeg)  
 {: style="text-align: center;"}
 
-![](/20140119_161817_Original.gif) | ![](/5161BDCE-E862-4A83-A1DF-C509484D2AFB.jpeg)  
+![](/20140119_161817_Original.gif) | ![](/20140119_162548_Original.gif)  
 -- | --  
-  |  
+&nbsp;  |  
 
 {: style="text-align: center;"}
