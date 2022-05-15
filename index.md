@@ -4,6 +4,6 @@
 
 ![](/20140119_161817_Original.gif) | ![](/IMG_1082_Original.jpeg)  
 -- | --  
-![]() |  ![](/20140119_162548_Original.gif)  
+![](/C5ADC1A7-1438-4579-8009-17A39DEFC9F8.jpeg) |  ![](/20140119_162548_Original.gif)  
 
 {: style="text-align: center;"}
